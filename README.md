@@ -1,1 +1,1 @@
-# 22-w-Microsoft-AI-
+# 22-w
